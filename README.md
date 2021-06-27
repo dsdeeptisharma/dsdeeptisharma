@@ -13,6 +13,7 @@
 
 🔎You can find me on:
 - [https://dsdeeptisharma.github.io/](https://dsdeeptisharma.github.io/)
+- [https://www.linkedin.com/in/deeptisharma1996/](https://www.linkedin.com/in/deeptisharma1996/)
 - [https://www.quora.com/profile/Deepti-Sharma-116](https://www.quora.com/profile/Deepti-Sharma-116)
 - [https://deepti96.wordpress.com](https://deepti96.wordpress.com)
 
